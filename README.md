@@ -1,0 +1,2 @@
+# P-ter-kos
+tanuló
